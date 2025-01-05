@@ -1,6 +1,6 @@
  ‎‎‎‎![hallowseve](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExd2wyeWg3eHNzYzk4MGVxOGZtZmFtdTdnbHhhbG84ZnF2eDd6ZDI3dCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/sAn0Tbgdtc2pjwJjx2/giphy.webp)
 
-##‎‎‎![x](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExcm1qeG5rcGg0bm1vcTdmNTl2aXRheGJrbXh2ZjgwN2ZrNG80YXVvZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/nkXHY2sKj5ICgIjoso/giphy.gif)
+![x](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExcm1qeG5rcGg0bm1vcTdmNTl2aXRheGJrbXh2ZjgwN2ZrNG80YXVvZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/nkXHY2sKj5ICgIjoso/giphy.gif)
 don't copy my skins - inspo is fine‎‎‎‎  ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  ‎‎‎‎  ‎‎‎‎  ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  ‎‎‎‎   ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  
 
 
