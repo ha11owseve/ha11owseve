@@ -2,6 +2,8 @@
 
  ‎‎‎‎![hallowseve](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExd2wyeWg3eHNzYzk4MGVxOGZtZmFtdTdnbHhhbG84ZnF2eDd6ZDI3dCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/sAn0Tbgdtc2pjwJjx2/giphy.webp)  <img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExeXBiZGxqdDIzcW1pYnBrYWRidGx3Y29wMXVyejM3MGs0aXJ3bnZqdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/DPqxvZebVFznIZdS1b/200w.webp" width="42" />
 
+![meat]([https://wilardo.crd.co/assets/images/gallery06/c342b3b5.png?v=d0e71742](https://wilardo.crd.co/assets/images/gallery07/9dabae57.png?v=d0e71742))
+
 ![x](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExcm1qeG5rcGg0bm1vcTdmNTl2aXRheGJrbXh2ZjgwN2ZrNG80YXVvZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/nkXHY2sKj5ICgIjoso/giphy.gif)
 
 [pt] don't copy my skins - inspo is fine‎‎‎‎,,, ‎‎‎‎ ‎‎‎‎  ‎‎‎‎  ‎‎‎‎  ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  ‎‎‎‎   ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  
