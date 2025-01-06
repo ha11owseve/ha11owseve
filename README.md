@@ -2,7 +2,7 @@
 
  ‎‎‎‎![hallowseve](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExd2wyeWg3eHNzYzk4MGVxOGZtZmFtdTdnbHhhbG84ZnF2eDd6ZDI3dCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/sAn0Tbgdtc2pjwJjx2/giphy.webp)  <img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExeXBiZGxqdDIzcW1pYnBrYWRidGx3Y29wMXVyejM3MGs0aXJ3bnZqdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/DPqxvZebVFznIZdS1b/200w.webp" width="42" />
 
-![meat]([https://wilardo.crd.co/assets/images/gallery06/c342b3b5.png?v=d0e71742](https://wilardo.crd.co/assets/images/gallery07/9dabae57.png?v=d0e71742)
+![header](https://64.media.tumblr.com/49d515d6824cd1d2f059ca9dfe598ecf/1aceb5a3f53ca95d-7f/s400x600/5bc8c07b9fe022e730255c5ea06f11f4dd6e2675.gif)![header](https://64.media.tumblr.com/49d515d6824cd1d2f059ca9dfe598ecf/1aceb5a3f53ca95d-7f/s400x600/5bc8c07b9fe022e730255c5ea06f11f4dd6e2675.gif)
 
 ![x](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExcm1qeG5rcGg0bm1vcTdmNTl2aXRheGJrbXh2ZjgwN2ZrNG80YXVvZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/nkXHY2sKj5ICgIjoso/giphy.gif)
 
