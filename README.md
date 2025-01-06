@@ -13,8 +13,8 @@
 
 ![MY BACK HURTS!!](https://i.imgur.com/Tu3CfQb.gif) ![briar main](https://i.imgur.com/FZluev0.gif)
 
-[rentry](https://rentry.co/hallowz_eve)
+![knife](https://64.media.tumblr.com/6436653fad41ce1a5e5550f11aa571a8/f651789587d2564c-53/s75x75_c1/a7268f3b999b87894d5872767c29095c8e7b3ed2.gifv) [rentry](https://rentry.co/hallowz_eve)
 
-[spacehey](https://spacehey.com/hallowseve) (its a wip lol)
+ ‎ ‎ ‎ ‎![heart](https://www.free-smileys.com/files/love-smileys/751.gif) [spacehey](https://spacehey.com/hallowseve)
 
-[yourworldoftext](yourworldoftext.com/~ha11owseve/)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![blood](https://files.catbox.moe/m14sm0.gif) [yourworldoftext](yourworldoftext.com/~ha11owseve/)
