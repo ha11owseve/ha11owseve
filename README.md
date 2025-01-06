@@ -12,3 +12,7 @@
 ![view counter broken i think.... sigh](https://komarev.com/ghpvc/?username=ha11owseve&label=🥩&color=75172a&style=plastic")
 
 ![MY BACK HURTS!!](https://i.imgur.com/Tu3CfQb.gif) ![briar main](https://i.imgur.com/FZluev0.gif)
+
+[rentry](https://rentry.co/hallowz_eve)
+
+[spacehey](https://spacehey.com/hallowseve) (its a wip lol)
