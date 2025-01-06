@@ -16,3 +16,5 @@
 [rentry](https://rentry.co/hallowz_eve)
 
 [spacehey](https://spacehey.com/hallowseve) (its a wip lol)
+
+[yourworldoftext](yourworldoftext.com/~ha11owseve/)
