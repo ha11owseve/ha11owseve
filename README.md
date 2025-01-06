@@ -9,7 +9,7 @@
 
 ![musicislife](https://i6.glitter-graphics.org/pub/976/976336iiof8g9a9g.gif) ![tea drinker](https://i6.glitter-graphics.org/pub/471/471346df7lfatg7n.gif) ![gameover](https://i.imgur.com/p5V9nz6.gif)
 
-![view counter broken i think.... sigh](https://komarev.com/ghpvc/?username=ha11owseve&label=🥩&color=75172a&style=plastic")
+![view counter](https://komarev.com/ghpvc/?username=ha11owseve&label=🥩&color=75172a&style=plastic")
 
 ![MY BACK HURTS!!](https://i.imgur.com/Tu3CfQb.gif) ![briar main](https://i.imgur.com/FZluev0.gif)
 
