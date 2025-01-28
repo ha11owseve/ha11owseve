@@ -1,17 +1,17 @@
 <div align="center">
 
- ‎‎‎‎![hallowseve](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExd2wyeWg3eHNzYzk4MGVxOGZtZmFtdTdnbHhhbG84ZnF2eDd6ZDI3dCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/sAn0Tbgdtc2pjwJjx2/giphy.webp)  <img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExeXBiZGxqdDIzcW1pYnBrYWRidGx3Y29wMXVyejM3MGs0aXJ3bnZqdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/DPqxvZebVFznIZdS1b/200w.webp" width="42" />
 
-![header](https://64.media.tumblr.com/49d515d6824cd1d2f059ca9dfe598ecf/1aceb5a3f53ca95d-7f/s400x600/5bc8c07b9fe022e730255c5ea06f11f4dd6e2675.gif)![header](https://64.media.tumblr.com/49d515d6824cd1d2f059ca9dfe598ecf/1aceb5a3f53ca95d-7f/s400x600/5bc8c07b9fe022e730255c5ea06f11f4dd6e2675.gif)
 
-![x](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExcm1qeG5rcGg0bm1vcTdmNTl2aXRheGJrbXh2ZjgwN2ZrNG80YXVvZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/nkXHY2sKj5ICgIjoso/giphy.gif)
+
+
+![x](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExM214eWFlZG1scDB2MTMyZDZxZ3Y4eTk1Y202NTJpdmM2M2FycDViciZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/aIxXscWiKauVd9xVGF/giphy.gif)
 
 [pt] don't copy my skins - inspo is fine‎‎‎‎,,, ‎‎‎‎ ‎‎‎‎  ‎‎‎‎  ‎‎‎‎  ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  ‎‎‎‎   ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  
 
 
 ![musicislife](https://i6.glitter-graphics.org/pub/976/976336iiof8g9a9g.gif) ![tea drinker](https://i6.glitter-graphics.org/pub/471/471346df7lfatg7n.gif) ![gameover](https://i.imgur.com/p5V9nz6.gif)
 
-![view counter](https://komarev.com/ghpvc/?username=ha11owseve&label=🥩-views&color=75172a&style=plastic")
+![view counter](https://komarev.com/ghpvc/?username=ha11owseve&label=🧵-views&color=08ccc9&style=plastic")
 
 ![MY BACK HURTS!!](https://i.imgur.com/Tu3CfQb.gif) 
 
