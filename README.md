@@ -13,7 +13,7 @@
 
 ![view counter](https://komarev.com/ghpvc/?username=ha11owseve&label=🧵-views&color=08ccc9&style=plastic")
 
-![MY BACK HURTS!!](https://i.imgur.com/Tu3CfQb.gif) 
+![I <3 GLITTER](https://blinkies.cafe/b/display/0018-glitter.gif) ![you came back..](https://blinkies.cafe/b/display/0056-pirate.gif) ![time blind](https://blinkies.cafe/b/display/0136-clock.gif)
 
 ![knife](https://64.media.tumblr.com/6436653fad41ce1a5e5550f11aa571a8/f651789587d2564c-53/s75x75_c1/a7268f3b999b87894d5872767c29095c8e7b3ed2.gifv) [rentry](https://rentry.co/hallowz_eve)
 
