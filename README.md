@@ -11,7 +11,7 @@
 
 ![musicislife](https://i6.glitter-graphics.org/pub/976/976336iiof8g9a9g.gif) ![tea drinker](https://i6.glitter-graphics.org/pub/471/471346df7lfatg7n.gif) ![pan pride](https://blinkies.cafe/b/display/0074-pan.gif)
 
-![view counter](https://komarev.com/ghpvc/?username=ha11owseve&label=🧵-views&color=08ccc9&style=plastic")
+![L wing](https://64.media.tumblr.com/bd82f5bd9dcf2073b5ad71fb77f276be/6f4b796c32348ef4-dd/s75x75_c1/82eb67e2e06b098113c8d28265cd16972e2b0b12.gifv) ![view counter](https://komarev.com/ghpvc/?username=ha11owseve&label=🧵-views&color=08ccc9&style=plastic") ![R wing](https://64.media.tumblr.com/aef1f99198cee9de6a0751d97a5d7944/6f4b796c32348ef4-4b/s75x75_c1/c7a20432381c96a769478161a4000917555f4db7.gifv)
 
 ![I <3 GLITTER](https://blinkies.cafe/b/display/0018-glitter.gif) ![you came back..](https://blinkies.cafe/b/display/0056-pirate.gif) ![time blind](https://blinkies.cafe/b/display/0136-clock.gif)
 
