@@ -4,7 +4,7 @@
 
 
 
-![x](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExdnJseGxsOXN6ZXBrcHVyNHR4ZW5idW10OHF1cWZ5ZHoybzdqOTZpbCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/2gWfhcnMRod57qjsoE/giphy.gif)
+![x]([https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExdnJseGxsOXN6ZXBrcHVyNHR4ZW5idW10OHF1cWZ5ZHoybzdqOTZpbCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/2gWfhcnMRod57qjsoE/giphy.gif](https://i.postimg.cc/c6yc76TT/12623734-03eb7-Edit-the-information-of-a-Pic-Mix.gif))
 
 [pt] don't copy my skins - inspo is fine‎‎‎‎,,, ‎‎‎‎ ‎‎‎‎  ‎‎‎‎  ‎‎‎‎  ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  ‎‎‎‎   ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  
 
