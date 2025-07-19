@@ -17,4 +17,4 @@
 ![I <3 GLITTER](https://blinkies.cafe/b/display/0018-glitter.gif) ![you came back..](https://blinkies.cafe/b/display/0056-pirate.gif) ![time blind](https://blinkies.cafe/b/display/0136-clock.gif)
 
  
-‎ ‎ ‎ ‎ ![swirl](https://64.media.tumblr.com/ee2c838eabf172c02f23dc80bea9ff35/0549ca437ae94b42-d2/s75x75_c1/d47e519a3d8b73a15f0f9e1887cf20dbfaa752ed.gifv) [rentry!!](https://rentry.co/hallowz_eve)
+‎ ‎ ‎ ‎ ![swirl](https://64.media.tumblr.com/ee2c838eabf172c02f23dc80bea9ff35/0549ca437ae94b42-d2/s75x75_c1/d47e519a3d8b73a15f0f9e1887cf20dbfaa752ed.gifv) [strawpage](https://ha11owseve.straw.page)
