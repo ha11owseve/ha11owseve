@@ -4,7 +4,6 @@
 
 
 
-![x](https://i.postimg.cc/c6yc76TT/12623734-03eb7-Edit-the-information-of-a-Pic-Mix.gif)
 
 [pt] don't copy my skins - inspo is fine‎‎‎‎,,, ‎‎‎‎ ‎‎‎‎  ‎‎‎‎  ‎‎‎‎  ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  ‎‎‎‎   ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  
 
