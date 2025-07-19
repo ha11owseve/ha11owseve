@@ -9,7 +9,7 @@
 [pt] don't copy my skins - inspo is fine‎‎‎‎,,, ‎‎‎‎ ‎‎‎‎  ‎‎‎‎  ‎‎‎‎  ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  ‎‎‎‎   ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  
 
 
-![musicislife](https://i6.glitter-graphics.org/pub/976/976336iiof8g9a9g.gif) ![tea drinker](https://i6.glitter-graphics.org/pub/471/471346df7lfatg7n.gif) ![pan pride](https://blinkies.cafe/b/display/0074-pan.gif)
+![musicislife](https://i6.glitter-graphics.org/pub/976/976336iiof8g9a9g.gif) ![tea drinker](https://i6.glitter-graphics.org/pub/471/471346df7lfatg7n.gif) ![aroace pride[(https://64.media.tumblr.com/560bbc720f5638fb70afff96dd534c57/046838436c0a5325-d6/s640x960/75210ceaa8f74cdb16df67800baf44759671799d.gifv)
 
 ![view counter](https://komarev.com/ghpvc/?username=ha11owseve&label=🧵-views&color=08ccc9&style=plastic") 
 
