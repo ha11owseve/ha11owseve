@@ -8,12 +8,10 @@
 you will PERISH if you copy my skins !!!!!!!! ‎‎‎‎ ‎‎‎‎  ‎‎‎‎  ‎‎‎‎  ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  ‎‎‎‎   ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  
 
 
-![musicislife](https://i6.glitter-graphics.org/pub/976/976336iiof8g9a9g.gif) ![tea drinker](https://i6.glitter-graphics.org/pub/471/471346df7lfatg7n.gif) ![aroace pride](https://i.postimg.cc/KctyVmjc/ezgif-3ccb1a257d8bef.gif)
-
 ![view counter](https://komarev.com/ghpvc/?username=ha11owseve&label=🧵-views&color=08ccc9&style=plastic") 
 
-
-![I <3 GLITTER](https://blinkies.cafe/b/display/0018-glitter.gif) ![you came back..](https://blinkies.cafe/b/display/0056-pirate.gif) ![time blind](https://blinkies.cafe/b/display/0136-clock.gif)
-
- 
+hi... my name is ~~everyone~~ ~~eye~~ eve !!
+i made this acc purely for ponytown :P you can usually find me above the marketplace/walking around aimlessly on the safe(eng) server/18+ server
+feel free to interact with me !! however please note that my communication skills are really bad and i struggle to keep conversations going myself :'(
+  
 ‎ ‎ ‎ ‎ ![swirl](https://64.media.tumblr.com/ee2c838eabf172c02f23dc80bea9ff35/0549ca437ae94b42-d2/s75x75_c1/d47e519a3d8b73a15f0f9e1887cf20dbfaa752ed.gifv) [strawpage](https://ha11owseve.straw.page)
