@@ -5,7 +5,7 @@
 
 
 
-[pt] don't copy my skins - inspo is fine‎‎‎‎,,, ‎‎‎‎ ‎‎‎‎  ‎‎‎‎  ‎‎‎‎  ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  ‎‎‎‎   ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  
+you will PERISH if you copy my skins !!!!!!!! ‎‎‎‎ ‎‎‎‎  ‎‎‎‎  ‎‎‎‎  ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  ‎‎‎‎   ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  
 
 
 ![musicislife](https://i6.glitter-graphics.org/pub/976/976336iiof8g9a9g.gif) ![tea drinker](https://i6.glitter-graphics.org/pub/471/471346df7lfatg7n.gif) ![aroace pride](https://i.postimg.cc/KctyVmjc/ezgif-3ccb1a257d8bef.gif)
