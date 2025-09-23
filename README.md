@@ -8,6 +8,9 @@
 you will PERISH if you copy my skins !!!!!!!! however i do encourage you to sign my atabook :3‎‎‎‎ ‎‎‎‎  ‎‎‎‎  ‎‎‎‎  ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  ‎‎‎‎   ‎‎‎‎ ‎‎‎‎ ‎‎‎‎  
 
 
+![WAHAHAHA](https://i.postimg.cc/mr1s1DW5/image.png) ![cries](https://i.postimg.cc/DfBMFTtJ/image.png)
+
+
 ![view counter](https://komarev.com/ghpvc/?username=ha11owseve&label=🧵-views&color=08ccc9&style=plastic") 
 
 hi... my name is ~~everyone~~ ~~eye~~ eve !!
