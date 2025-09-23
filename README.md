@@ -21,4 +21,5 @@ you can usually find me above the marketplace/walking around aimlessly on the sa
 
 feel free to interact with me !! however please note that my communication skills are really bad and i struggle to keep conversations going myself :'(
   
-‎ ‎ ‎ ‎ ![swirl](https://64.media.tumblr.com/ee2c838eabf172c02f23dc80bea9ff35/0549ca437ae94b42-d2/s75x75_c1/d47e519a3d8b73a15f0f9e1887cf20dbfaa752ed.gifv) [strawpage](https://ha11owseve.straw.page)
+‎ ‎ ‎ ‎ [atabook](https://ha11owseve.atabook.org)
+‎ ‎ ‎ ‎ [strawpage](https://ha11owseve.straw.page)
