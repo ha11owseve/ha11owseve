@@ -5,25 +5,11 @@
 
 
 
-you will PERISH if you copy my skins !!!!!!!! ‎‎‎‎  
-
-
-![WAHAHAHA](https://i.postimg.cc/mr1s1DW5/image.png) ![cries](https://i.postimg.cc/DfBMFTtJ/image.png)
+![test](https://live.staticflickr.com/65535/54825544368_fd4a277717_n.jpg) wip. . .
 
 
 ![view counter](https://komarev.com/ghpvc/?username=ha11owseve&label=🧵-views&color=08ccc9&style=plastic") 
 
-hi... my name is ~~everyone~~ ~~eye~~ eve !!
-i made this acc purely for ponytown :P 
-
-
-
-you can usually find me above the marketplace/walking around aimlessly on the safe(eng) server/18+ server
-
-
-
-feel free to interact with me !! however please note that my communication skills are really bad and i struggle to keep conversations going myself :'(
-  
 ‎ ‎ ‎ ‎ [atabook](https://ha11owseve.atabook.org)
 ‎ ‎ ‎ ‎ [strawpage](https://ha11owseve.straw.page)
 ‎ ‎ ‎ ‎ [planetminecraft](https://www.planetminecraft.com/member/ha11owseve)
