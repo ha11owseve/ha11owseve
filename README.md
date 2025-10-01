@@ -1,6 +1,6 @@
 
 <img align="left"  src="https://live.staticflickr.com/65535/54825544368_fd4a277717_n.jpg">
-‎<div align="center"> ‎stupid ugly wip‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+‎<div align="center"> ‎c + h always, unless im w/ friends... ✎ 18! under 15 dni ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
 
 ‎ 
