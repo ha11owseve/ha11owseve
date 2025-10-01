@@ -1,6 +1,6 @@
 
 <img align="left"  src="https://live.staticflickr.com/65535/54825544368_fd4a277717_n.jpg">
-‎<div align="center"> ‎   stupid ugly wip‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+‎<div align="center"> ‎stupid ugly wip‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
 
 ‎ 
