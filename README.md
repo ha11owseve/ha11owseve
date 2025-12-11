@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="519" height="207" src="https://i.postimg.cc/28ckR5pn/header.gif">
+  <img width="519" height="207" src="https://i.postimg.cc/50CYzsdd/HEADERr.gif">
 </p>
 
 <p align="center">
@@ -10,7 +10,7 @@
 WIP
 
 <p align="center">
-  <img width="150" height="20" src="https://i.postimg.cc/tgR7TrJq/pudding.gif">
+  <img width="150" height="20" src="https://i.postimg.cc/tgR7TrJq/pudding.gif"> <img width="150" height="20" src="https://i.postimg.cc/QNPDwjTY/burningspice.gif">
 </p>
 
 
