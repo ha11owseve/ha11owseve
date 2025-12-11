@@ -10,7 +10,7 @@
 WIP
 
 <p align="center">
-  <img width="150" height="20" src="https://i.postimg.cc/tgR7TrJq/pudding.gif"> <img width="150" height="20" src="https://i.postimg.cc/QNPDwjTY/burningspice.gif">
+  <img width="150" height="20" src="https://i.postimg.cc/tgR7TrJq/pudding.gif"> <img width="150" height="20" src="https://i.postimg.cc/QNPDwjTY/burningspice.gif"> <img width="150" height="20" src="https://i.postimg.cc/CKFH0TqB/sugarfly.gif">
 </p>
 
 
