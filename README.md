@@ -20,5 +20,5 @@ WIP
 
 
 ‎ ‎ ‎ [atabook](https://ha11owseve.atabook.org)
-‎ ‎ ‎ ‎ [strawpage](https://ha11owseve.straw.page)
+‎ ‎ ‎ ‎ [rentry](https://rentry.co/ha11owseve)
 ‎ ‎ ‎ ‎ [planetminecraft](https://www.planetminecraft.com/member/ha11owseve)
