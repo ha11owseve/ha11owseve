@@ -8,7 +8,7 @@ crk, winx club, danganronpa, league of legends, 60 seconds, monster high, ever a
 
 
 <p align="center">
-  <img width="150" height="20" src="https://i.postimg.cc/wBDRjz22/ezgif-4596ca81b8e99207.webp">  <img width="150" height="20" src="https://i.postimg.cc/76GHZnqD/0127-splatoon1.gif">  <img width="150" height="20" src="https://i.postimg.cc/02xsTsKD/0132-rainbowdash.gif"> <img width="150" height="20" src="https://i.postimg.cc/Gh2YQ236/0018-glitter.gif">
+ <img width="150" height="20" src="https://i.postimg.cc/76GHZnqD/0127-splatoon1.gif">  <img width="150" height="20" src="https://i.postimg.cc/02xsTsKD/0132-rainbowdash.gif"> <img width="150" height="20" src="https://i.postimg.cc/Gh2YQ236/0018-glitter.gif">
 </p>
 
 <div align="center">
