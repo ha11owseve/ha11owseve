@@ -1,14 +1,5 @@
 <p align="center">
-  <img width="519" height="207" src="https://i.postimg.cc/C1gWtvnJ/heh.gif">
-</p>
-
-<p align="center">
-crk, winx club, danganronpa, league of legends, 60 seconds, monster high, ever after high, hermitcraft, lifeseries, empires smp, splatoon !!
-</p>
-
-
-<p align="center">
- <img width="150" height="20" src="https://i.postimg.cc/76GHZnqD/0127-splatoon1.gif">  <img width="150" height="20" src="https://i.postimg.cc/02xsTsKD/0132-rainbowdash.gif"> <img width="150" height="20" src="https://i.postimg.cc/Gh2YQ236/0018-glitter.gif">
+  <img width="440" height="109" src="https://i.postimg.cc/xd1NdMCN/ezgif-3114ef14e2eeeaac.gif">
 </p>
 
 <div align="center">
