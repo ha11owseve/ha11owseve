@@ -1,13 +1,9 @@
 <p align="center">
-  <img width="440" height="109" src="https://i.postimg.cc/xd1NdMCN/ezgif-3114ef14e2eeeaac.gif">
+  <img width="440" height="109" src="https://i.postimg.cc/x1G4hr7p/Hi.jpg">
 </p>
 
 <div align="center">
 WIP
-
-<p align="center">
-  <img width="150" height="20" src="https://i.postimg.cc/tgR7TrJq/pudding.gif"> <img width="150" height="20" src="https://i.postimg.cc/QNPDwjTY/burningspice.gif"> <img width="150" height="20" src="https://i.postimg.cc/CKFH0TqB/sugarfly.gif">
-</p>
 
 
 ‎ ‎ ‎ [atabook](https://ha11owseve.atabook.org)
