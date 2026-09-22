@@ -13,3 +13,5 @@ i like spinel a lot
 <p align="center">
   <img width="150" height="59" src="https://i.postimg.cc/9XZxV1N1/nyoom.gif">
 </p>
+
+![](https://komarev.com/ghpvc/?username=ha11owseve&label=🩷+other+friends&color=ff69b4)
