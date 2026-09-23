@@ -8,7 +8,7 @@ i like spinel a lot ^_^
 main fandoms: league of legends, steven universe, winx club, ddlc, crk/crwc
 
 ‎ ‎ ‎ [atabook](https://ha11owseve.atabook.org)
-‎ ‎ ‎ ‎ [strawpage](https://ha11owseve.straw.page)
+‎ ‎ ‎ ‎ [strawpage](https://hallowseve.straw.page/)
 ‎ ‎ ‎ ‎ [planetminecraft](https://www.planetminecraft.com/member/ha11owseve)
 
 <p align="center">
