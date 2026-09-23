@@ -21,5 +21,3 @@ main fandoms: league of legends, steven universe, winx club, ddlc, crk/crwc
   <img width="334" height="308" src="https://i.postimg.cc/bYkFhbyx/image.png">
 </p>
 
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=qxfd7qvxefc17iisclewadhex&cover_image=true&theme=default&show_offline=false&background_color=a00357&interchange=false&profanity=false&hide_remaster=false&bar_color=ffbdd9)](https://github.com/kittinan/spotify-github-profile)
