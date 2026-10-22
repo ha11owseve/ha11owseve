@@ -3,7 +3,6 @@
   ![art: switcherooau/saiscribbles](https://i.postimg.cc/SKs4TWVJ/Switch-Spinel.jpg)
 
 <p align="center">
-  <img width="200" height="200" src="https://i.postimg.cc/Sj0hJpXB/CUTEEE.gif">
 </p>
 
 <div align="center">
