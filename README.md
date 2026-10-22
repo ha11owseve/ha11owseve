@@ -21,3 +21,4 @@ main fandoms: league of legends, steven universe, winx club, ddlc, crk/crwc
 
 <a href="https://www.tumblr.com/saiscribbles" style="color: pink; text-decoration: underline;text-decoration-style: dotted;">saiscribbles</a>
 
+  <sub><sup>art by: [saiscribbles](https://www.tumblr.com/saiscribbles)</sup></sub>
