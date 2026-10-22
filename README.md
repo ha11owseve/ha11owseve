@@ -1,7 +1,10 @@
 <div align="center">
 
-  ![art: switcherooau/saiscribbles](https://i.postimg.cc/SKs4TWVJ/Switch-Spinel.jpg)
-
+  ![art: switcherooau/saiscribbles](https://i.postimg.cc/B67X7Sx6/Switcheroo-Spinel.jpg)
+<div align="right>
+  
+  <sub><sup>art by: [saiscribbles](https://www.tumblr.com/saiscribbles)</sup></sub>
+</p>
 <p align="center">
 </p>
 
