@@ -4,7 +4,6 @@
   
   ![art: saiscribbles](https://i.postimg.cc/cJpDQyJZ/Hello.jpg)
 
-
 </p>
 <p align="center">
 </p>
@@ -36,4 +35,5 @@ As you can tell I like Spinel lots
 </details>
 
 
+![](https://komarev.com/ghpvc/?username=ha11owseve&label=PROFILE+VIEWS)
 
