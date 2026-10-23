@@ -35,6 +35,5 @@ As you can tell I like Spinel lots
 
 </details>
 
-![](https://komarev.com/ghpvc/?username=ha11owseve&color=ff69b4&label=⋆˙⟡🩷)
-
+![](https://komarev.com/ghpvc/?username=ha11owseve&color=ff69b4&label=⋆˙⟡🩷ㅤ)
 
