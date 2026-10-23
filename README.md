@@ -14,8 +14,6 @@
 ![](https://komarev.com/ghpvc/?username=ha11owseve&color=ff69b4&label=⋆˙⟡🩷ㅤ)
 
 
-its a WIP, sorry :(
-
 [dni](https://rentry.co/basicdni-criteria)
 
 ![divider](https://i.postimg.cc/J0GLYHXq/f6c63244-original.png)
@@ -54,4 +52,5 @@ As you can tell I like Spinel lots
 ![pony](https://i.postimg.cc/d1JQ604q/175.gif)
 
 
-![pink paradise blinkie](https://i.postimg.cc/nzLbM93h/3765750z7b4hr3ekd.gif)
+![pink paradise blinkie](https://i.postimg.cc/nzLbM93h/3765750z7b4hr3ekd.gif) ![pink paradise blinkie](https://i.postimg.cc/nzLbM93h/3765750z7b4hr3ekd.gif) ![pink paradise blinkie](https://i.postimg.cc/nzLbM93h/3765750z7b4hr3ekd.gif) ![pink paradise blinkie](https://i.postimg.cc/nzLbM93h/3765750z7b4hr3ekd.gif) 
+
