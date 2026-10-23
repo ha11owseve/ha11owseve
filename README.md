@@ -13,7 +13,7 @@
 
 its a WIP, sorry :(
 
-[dni](https://rentry.co/sodasbasicdni)
+[dni](https://rentry.co/dnicriteria)
 
 
 ‎ ‎ ‎ [atabook](https://ha11owseve.atabook.org)
