@@ -11,14 +11,14 @@
 
 <div align="center">
 
+![](https://komarev.com/ghpvc/?username=ha11owseve&color=ff69b4&label=⋆˙⟡🩷ㅤ)
+
+
 its a WIP, sorry :(
 
 [dni](https://rentry.co/dnicriteria)
 
 
-‎ ‎ ‎ [atabook](https://ha11owseve.atabook.org)
-‎ ‎ ‎ ‎ [strawpage](https://hallowseve.straw.page/)
-‎ ‎ ‎ ‎ [planetminecraft](https://www.planetminecraft.com/member/ha11owseve)
 
 <details>
 
@@ -35,5 +35,15 @@ As you can tell I like Spinel lots
 
 </details>
 
-![](https://komarev.com/ghpvc/?username=ha11owseve&color=ff69b4&label=⋆˙⟡🩷ㅤ)
+<details>
+
+<summary>links</summary>
+
+
+‎ ‎ ‎ [atabook](https://ha11owseve.atabook.org)
+‎ ‎ ‎ ‎ [strawpage](https://hallowseve.straw.page/)
+‎ ‎ ‎ ‎ [planetminecraft](https://www.planetminecraft.com/member/ha11owseve)
+
+
+</details>
 
