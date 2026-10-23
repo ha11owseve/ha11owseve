@@ -1,3 +1,4 @@
+
 <div align="center">
   
   <sub>art by: [saiscribbles](https://www.tumblr.com/saiscribbles)</sub>
@@ -34,6 +35,6 @@ As you can tell I like Spinel lots
 
 </details>
 
+![](https://komarev.com/ghpvc/?username=ha11owseve)
 
-![](https://komarev.com/ghpvc/?username=ha11owseve&label=PROFILE+VIEWS)
 
