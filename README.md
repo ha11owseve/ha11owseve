@@ -52,5 +52,5 @@ As you can tell I like Spinel lots
 ![pony](https://i.postimg.cc/d1JQ604q/175.gif)
 
 
-![pink paradise blinkie](https://i.postimg.cc/nzLbM93h/3765750z7b4hr3ekd.gif) ![pink paradise blinkie](https://i.postimg.cc/nzLbM93h/3765750z7b4hr3ekd.gif) ![pink paradise blinkie](https://i.postimg.cc/nzLbM93h/3765750z7b4hr3ekd.gif) ![pink paradise blinkie](https://i.postimg.cc/nzLbM93h/3765750z7b4hr3ekd.gif) 
+![pink paradise blinkie](https://i.postimg.cc/nzLbM93h/3765750z7b4hr3ekd.gif) ![cola blinkie](https://i.postimg.cc/q7v46FRH/cola-blinkie.gif) ![bubblewrap blinkie](https://i.postimg.cc/Y9JHVqxc/bubblewrap-blinkie.gif) ![music blinkie](https://i.postimg.cc/KYjh8gqG/976336iiof8g9a9g.gif) 
 
