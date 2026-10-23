@@ -18,7 +18,7 @@ its a WIP, sorry :(
 
 [dni](https://rentry.co/basicdni-criteria)
 
-
+![divider](https://i.postimg.cc/J0GLYHXq/f6c63244-original.png)
 
 <details>
 
@@ -35,6 +35,8 @@ As you can tell I like Spinel lots
 
 </details>
 
+![divider](https://i.postimg.cc/J0GLYHXq/f6c63244-original.png)
+
 <details>
 
 <summary>links</summary>
@@ -47,5 +49,6 @@ As you can tell I like Spinel lots
 
 </details>
 
+![divider](https://i.postimg.cc/J0GLYHXq/f6c63244-original.png)
 
 ![pony](https://i.postimg.cc/d1JQ604q/175.gif)
