@@ -16,7 +16,7 @@
 
 its a WIP, sorry :(
 
-[dni](https://rentry.co/dnicriteria)
+[dni](https://rentry.co/basicdni-criteria)
 
 
 
