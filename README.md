@@ -3,7 +3,7 @@
   
   <sub>art by: [saiscribbles](https://www.tumblr.com/saiscribbles)</sub>
   
-  ![art: saiscribbles](https://i.postimg.cc/wTqsNSqP/Hii.gif)
+  ![art: saiscribbles](https://i.postimg.cc/WbYtkzYB/Thanks.gif)
 
 </p>
 <p align="center">
