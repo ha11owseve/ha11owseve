@@ -20,7 +20,8 @@
 
 <details>
 
-<summary>about me</summary>
+<summary>$\text{\color{#ff69b4}about me !}$ 
+</summary>
 
 
 This is for ponytown only! Normally, you can find me just about anywhere on the safe server (or on the rare occasion other servers too). Though, i tend to stick around above the market or in the Steven Universe area. If you want to talk, please whisper otherwise I'm not likely to see your message/s ^_^
@@ -37,7 +38,8 @@ As you can tell I like Spinel lots
 
 <details>
 
-<summary>interests</summary>
+<summary>$\text{\color{#ff69b4}interests !}$ 
+</summary>
 
 # games
 
@@ -54,7 +56,8 @@ Steven Universe, Winx Club, Sailor Moon, Tokyo Mew Mew, Lucky Star, My Little Po
 
 <details>
 
-<summary>links</summary>
+<summary>$\text{\color{#ff69b4}links !}$ 
+</summary>
 
 
 ‎ ‎ ‎ [atabook](https://ha11owseve.atabook.org)
