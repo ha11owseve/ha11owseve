@@ -24,7 +24,9 @@
 </summary>
 
 
-This is for ponytown only! Normally, you can find me just about anywhere on the safe server (or on the rare occasion other servers too). Though, i tend to stick around above the market or in the Steven Universe area. If you want to talk, please whisper otherwise I'm not likely to see your message/s ^_^
+This github was made for pt only ^_^
+
+Normally, you can find me just about anywhere on the safe server (or on the rare occasion other servers too). Though, i tend to stick around above the market or in the Steven Universe area. If you want to talk, please whisper otherwise I'm not likely to see your message/s ^_^
 
 C+H is always welcome, however all I ask is that you don't cover my ponies for prolonged amounts of time :'(
 
