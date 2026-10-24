@@ -45,7 +45,7 @@ As you can tell I like Spinel lots
 
 # games
 
-League of Legends, Splatoon3, Tomodachi Life, Minecraft, Doki Doki Literature Club!, Cuphead, Animal Crossing New Horizons, 60 Seconds/Parsecs!, Mario Kart 8 Deluxe, Mario Kart Wii
+League of Legends, Splatoon3, Tomodachi Life, Minecraft, Doki Doki Literature Club!, Cuphead, Animal Crossing New Horizons, 60 Seconds/Parsecs!, Mario Kart 8 Deluxe, Mario Kart Wii, Cookie Run: Kingdom, Cookie Run: Witches Castle
 
 # Shows/Movies
 
