@@ -32,7 +32,7 @@ C+H is always welcome, however all I ask is that you don't cover my ponies for p
 
 I have [suspected] AuDHD, and I am a *very* awkward person, so please bare with me :')
 
-As you can tell I like Spinel lots!! very big comf. character for me as well as [pudding á la mode cookie](https://cookierun.wiki/w/Pudding_%C3%A0_la_Mode_Cookie) ![emoji](https://www.free-smileys.com/files/embarrassed-smileys/920.gif)
+As you can tell I like Spinel lots!! very big comf. character for me as well as [pudding á la mode cookie](https://cookierun.wiki/w/Pudding_%C3%A0_la_Mode_Cookie) ![emoji](https://i.postimg.cc/cHzCzMrT/aht.gif)
 
 </details>
 
