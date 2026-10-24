@@ -16,8 +16,7 @@
 
 [dni](https://rentry.co/basicdni-criteria)
 
-![divider](https://i.postimg.cc/vTBh0D7n/ef023ddd.gif)
-
+![divider](https://i.postimg.cc/dtKj0SP3/divider.gif)
 <details>
 
 <summary>$\text{\color{#ff69b4}about me !}$ 
@@ -36,7 +35,7 @@ As you can tell I like Spinel lots!! very big comf. character for me as well as 
 
 </details>
 
-![divider](https://i.postimg.cc/vTBh0D7n/ef023ddd.gif)
+![divider](https://i.postimg.cc/dtKj0SP3/divider.gif)
 
 <details>
 
@@ -54,7 +53,7 @@ Steven Universe, Winx Club, Sailor Moon, Tokyo Mew Mew, Lucky Star, My Little Po
 
 </details>
 
-![divider](https://i.postimg.cc/vTBh0D7n/ef023ddd.gif)
+![divider](https://i.postimg.cc/dtKj0SP3/divider.gif)
 
 <details>
 
