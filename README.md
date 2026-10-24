@@ -16,7 +16,7 @@
 
 [dni](https://rentry.co/basicdni-criteria)
 
-![divider](https://i.postimg.cc/J0GLYHXq/f6c63244-original.png)
+![divider](https://i.postimg.cc/vTBh0D7n/ef023ddd.gif)
 
 <details>
 
@@ -36,7 +36,7 @@ As you can tell I like Spinel lots
 
 </details>
 
-![divider](https://i.postimg.cc/J0GLYHXq/f6c63244-original.png)
+![divider](https://i.postimg.cc/vTBh0D7n/ef023ddd.gif)
 
 <details>
 
@@ -54,7 +54,7 @@ Steven Universe, Winx Club, Sailor Moon, Tokyo Mew Mew, Lucky Star, My Little Po
 
 </details>
 
-![divider](https://i.postimg.cc/J0GLYHXq/f6c63244-original.png)
+![divider](https://i.postimg.cc/vTBh0D7n/ef023ddd.gif)
 
 <details>
 
@@ -69,7 +69,7 @@ Steven Universe, Winx Club, Sailor Moon, Tokyo Mew Mew, Lucky Star, My Little Po
 
 </details>
 
-![divider](https://i.postimg.cc/J0GLYHXq/f6c63244-original.png)
+![divider](https://i.postimg.cc/vTBh0D7n/ef023ddd.gif)
 
 ![pony](https://i.postimg.cc/d1JQ604q/175.gif)
 
