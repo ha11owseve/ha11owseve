@@ -72,4 +72,4 @@ Steven Universe, Winx Club, Sailor Moon, Tokyo Mew Mew, Lucky Star, My Little Po
 ![pink paradise blinkie](https://i.postimg.cc/nzLbM93h/3765750z7b4hr3ekd.gif) ![cola blinkie](https://i.postimg.cc/q7v46FRH/cola-blinkie.gif) ![bubblewrap blinkie](https://i.postimg.cc/Y9JHVqxc/bubblewrap-blinkie.gif) ![music blinkie](https://i.postimg.cc/KYjh8gqG/976336iiof8g9a9g.gif) 
 
 
-$\text{\color#FF000} hi}$
+$\text{\color{#ff69b4}test !}$ 
