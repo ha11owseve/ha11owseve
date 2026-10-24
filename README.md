@@ -68,7 +68,7 @@ Steven Universe, Winx Club, Sailor Moon, Tokyo Mew Mew, Lucky Star, My Little Po
 
 </details>
 
-![divider](https://i.postimg.cc/vTBh0D7n/ef023ddd.gif)
+![divider](https://i.postimg.cc/dtKj0SP3/divider.gif)
 
 ![pony](https://i.postimg.cc/d1JQ604q/175.gif)
 
